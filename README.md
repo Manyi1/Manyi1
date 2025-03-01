@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Manyi1
 - 👀 I’m interested in playing basketball 
-- 🌱 I’m currently learning in Sori boys 
+- 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me I live Kenya 
 - 😄 Pronouns: ...
